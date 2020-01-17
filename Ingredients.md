@@ -4,4 +4,5 @@
 - a skillet
 - 1 tbsp butter
 - a bunch of chives
-- a wooden spoon
+- a hardcore metal spoon
+- an **old** wooden spoon
