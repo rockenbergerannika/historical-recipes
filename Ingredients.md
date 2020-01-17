@@ -5,3 +5,4 @@
 - butter
 - a bunch of chives
 - a hardcore metal spoon
+- an old wooden spoon
